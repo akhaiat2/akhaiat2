@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @akhaiat2
+- 👋 Hi, I’m Anthony!
 - 👀 I’m interested in startups, the internet, and more!
 - 🌱 I’m currently learning internet art!
 - 💞️ I’m looking to collaborate on my startup
